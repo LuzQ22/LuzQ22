@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Luz Elena
-- 👀 I’m interested in inovation and AI
+- 👀 I’m interested in innovation and AI
 - 🌱 I’m currently learning about topics related to technology and Math
   
 
